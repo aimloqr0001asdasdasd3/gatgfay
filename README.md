@@ -14,6 +14,6 @@
 ![image alt](https://github.com/aimloqr0001asdasdasd3/gatgfay/blob/main/Ascendant_1_Rank.png?raw=true)
 ![image alt](https://github.com/aimloqr0001asdasdasd3/gatgfay/blob/main/Ascendant_2_Rank.png?raw=true)
 ![image alt](https://github.com/aimloqr0001asdasdasd3/gatgfay/blob/main/Ascendant_3_Rank.png?raw=true)
-![image alt](https://github.com/aimloqr0001asdasdasd3/gatgfay/blob/main/Diamond_3_Rank.png?raw=true)
+![image alt](https://github.com/aimloqr0001asdasdasd3/gatgfay/blob/main/Immortal_3_Rank.png?raw=true)
 ![image alt](https://github.com/aimloqr0001asdasdasd3/gatgfay/blob/main/Radiant_Rank.png?raw=true)
 
